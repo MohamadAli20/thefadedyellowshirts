@@ -1,7 +1,7 @@
 “The faded yellow shirts” <br>
 – ✍ Mohamad Ali Ambay Calanda <br>
 
-I was bitten by many storms,<br>
+I was battered by many storms,<br>
 While you stayed in cozy rooms.<br>
 I need hands to lift me up,<br>
 But I was pushed into a trap.<br>
